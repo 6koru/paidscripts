@@ -1,2 +1,1 @@
-This Is For Beaming / Doxxing Its A Tool 
-If Ur Not Whitelisted Pleaase DM eruinzae
+This Is A Ping Chooser If Your Using This For Free That Means Ur The Owners Friend
